@@ -1,5 +1,5 @@
 # saucisse
 
-OUAAAAI
+ouais
 
-bellla beh salade tomate et sauce oignons
+salade tomate et sauce oignons
